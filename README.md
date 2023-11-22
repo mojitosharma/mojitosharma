@@ -18,7 +18,7 @@ Here are some ideas to get you started:
 ## About me  
   
 
-- I am pursuing my 3rd year of B.Tech in Computer Science at IIITD
+- I am pursuing my 4th year of B.Tech in Computer Science at IIITD
 
   
 
